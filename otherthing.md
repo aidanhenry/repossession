@@ -1,3 +1,9 @@
+terrible
+horrible
+no good
+very bad
+dumpster fire
+
 # bdfdafdlah blah blah
 Other stuff
 dfdchicken
